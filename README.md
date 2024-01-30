@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chilldrenchi
-- 👀 I’m interested in ESG, Spanish,Criminal Psychology, HomeKit, Latte Atrs 
+- 👀 I’m interested in ESG, Spanish,Criminal Psychology, HomeKit, Latte Arts 
 - 🌱 I’m currently learning Applied Analytcis at Columbia Univeristy 
 - 💞️ I’m looking to collaborate on predictive modeling 
 - 📫 Personal Email: chilldrenchi@gmail.com
